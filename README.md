@@ -1,0 +1,39 @@
+🎰 1000bet Casino — Your Gateway to Online Gaming and Betting
+1000bet is a modern online casino that offers a wide variety of slots, table games, live dealer experiences, and sports betting. With a clean user interface and generous promotions, it’s suitable for both beginners and experienced players.
+
+🎮 Game Selection
+1000bet Casino features a rich selection of games:
+
+Slots — From classic fruit machines to high-quality video slots by leading providers
+
+Table Games — Enjoy blackjack, roulette, baccarat, and more
+
+Live Casino — Real dealers and real-time streaming for immersive gameplay
+
+Virtual Sports — Fast-paced betting with simulated sporting events
+
+🎯 All games are powered by trusted software providers, ensuring smooth, high-quality experiences.
+
+
+https://www.1000bet-com.com/
+
+💰 Bonuses & Promotions
+1000bet Casino offers enticing bonuses to enhance your gameplay:
+
+Welcome Bonus — A generous reward for new users upon registration and first deposit
+
+Free Spins — Frequent offers on top slot games
+
+Loyalty Program — Earn rewards, exclusive deals, and more as you level up through the loyalty tiers
+
+💡 Always check the terms and conditions, especially for wagering requirements.
+
+📱 Mobile Compatibility
+The 1000bet website is fully optimized for mobile devices. There’s no need to download an app — games and betting options work seamlessly through your mobile browser.
+
+🔒 Licensing & Security
+1000bet operates under a valid Curaçao eGaming license, meeting international standards for fairness and player protection. The platform uses SSL encryption to safeguard all transactions and personal data.
+
+1000bet Casino is a well-rounded platform with a strong game catalog, attractive promotions, and reliable mobile access. Whether you’re a casual player or a serious bettor, 1000bet offers the tools and experience to keep you entertained.
+
+Disclaimer: Always play responsibly. Make sure online gambling is legal in your country before registering.
